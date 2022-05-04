@@ -23,5 +23,6 @@ Effectivement, Louis ne sait pas lire. Même pas les journaux. Quel fdp.
 ### chapitre 4 *Aventure*
 Louis est aussi un gros weebos et adore **One Piece**, Un jour il déclara :
 >Le roi des pirates ce sera moi!
+
 Sa mère qui est aussi de droite et n'aimant pas la culture japonnaise le gifla pour lui remettre les idées en place!
 
