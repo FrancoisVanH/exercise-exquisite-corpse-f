@@ -26,3 +26,7 @@ Louis est aussi un gros weebos et adore **One Piece**, Un jour il déclara :
 
 Sa mère qui est aussi de droite et n'aimant pas la culture japonnaise le gifla pour lui remettre les idées en place!
 
+### Chapitre 5 *La chûte*
+
+Il s'envola jusqu'à atteindre la contrée lointaine de Fort Fort Lointain, un endroit où seul les durs survivent. Louis est une tafiole, à part aimer les tomates, et devenir aussi rouge qu'elles, ils ne sait pas faire grand chose. Il fit la connaissance du grand Shrek, qui lui apprit la survie en ce monde hostile. On le connait désormais sous le nom de :"l'âne, au grand bec".
+
