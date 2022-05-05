@@ -10,11 +10,11 @@ Par contre, ce que Louis aime, c'est les **tomates**.
 
 #### Chapitre 2
 
-Malheureusement pour notre ami Louis le champ de tomate ou il allait faire c'est emplette fut bombrde car il se trouvais en Ukraine. Se qui le poussa a fuire le pays pour trouve un nouveau lieu ou trouve cette fameuse **Tomate** qui le fais tellement rêve. En chemin il trouvera d'autre personne qui on le même probleme que lui, vont-il devenir ami ? la Suite dans le prochain chapitre.
+Malheureusement pour notre ami Louis le champ de tomates ou il allait faire ses emplettesi fut bombardée car il se trouvait en Ukraine. Ce qui le poussa à fuire le pays pour trouver un nouveau lieu où trouver cette fameuse **tomate** qui le faisait tellement rêver. En chemin il trouvera d'autres personnes qui ont le même probleme que lui, vont-ils devenir amis ? la suite dans le prochain chapitre.
 
 ### Chapitre 3 *Developpement*
 
-Louis est un putain d'enfant de droite en effet. Louis vote Lepen au second tour, et ouai.   
+Louis est un putain d'enfant de droite en effet. Louis vote Lepen au second tour, et ouais.   
 
 Pas parce que Louis veut défendre ces idées, non. Parce que Louis ne comprend rien au programme de Marine.   
 
